@@ -1,3 +1,3 @@
 ## Resume
 
-Jhonattan Rodríguez
+Jhonattan Rodriguez
